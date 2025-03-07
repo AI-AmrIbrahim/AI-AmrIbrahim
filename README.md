@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently learning techniques in Gen AI and ML.<br>🔭 I’m working on exciting projects that explore the intersection of AI and data science.<br>👯 I’m looking to collaborate on open-source projects and innovative research.<br>📫 How to reach me: amrkhalid111999@gmail.com<br>⚡ Fun fact: I enjoy museums and I body build
+🌱 I’m currently learning techniques in Gen AI and ML.<br>🔭 I’m working on exciting projects that explore the intersection of AI and data science.<br>👯 I’m looking to collaborate on open-source projects and innovative research.<br>📫 How to reach me: amr.ibrahim.personal@gmail.com<br>⚡ Fun fact: I enjoy museums and I body build
 
 
 ## 🌐 Socials:
